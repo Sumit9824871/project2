@@ -1,2 +1,2 @@
 new file !!
-just amking some text updates
+just making some text updates
